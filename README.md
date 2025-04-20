@@ -1,3 +1,5 @@
+![Banner do canal](https://github.com/user-attachments/assets/9df45e95-413e-45cb-91e7-5de569359825)
+
 ## Um pouco sobre mim!
 Olá, tudo bem, meu nome é Thalyson Gabriel Brito da Silva, aqui no X e no Github, vocês me conhecem como O Gavrilista, sou interessado em tecnologia, privacidade, videogames, política e cultura pop. 
 
