@@ -9,4 +9,4 @@ Além disso, gosto muito de Sonic e de forma engraçada, gosto de coisas como o 
 
 Eu me apaixonei por tecnologia, por conta do TecMundo e sério esse é um canal excelente de tech, a história da Samsung, me incentiva até hoje a criar novas tecnologias e sonhar alto, assim como a Samsung.
 
-Minhas redes são o X (https://x.com/OGavrilista), o Github (https://github.com/OGavrilista), o Instagram (https://instagram.com/OGavrilista) e o YouTube (https://youtube.com/@OGavrilista), se quiser conferí-las os links estão entre parênteses.
+Minhas redes são o X (https://x.com/OGavrilista), o Github (https://github.com/OGavrilista) e o YouTube (https://youtube.com/@OGavrilista), se quiser conferí-las os links estão entre parênteses.
